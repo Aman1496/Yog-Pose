@@ -23,4 +23,22 @@ prevent any kind of injury
 
 ![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/fbd9cc4a-c442-4481-a42b-c3c297911a86)
 
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/4c31be56-1429-4d8d-9da3-05c1684d76da)
 
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/3cd2cb5a-768f-43bc-856c-8ec43f095b5c)
+
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/57595ad4-f991-4b9a-ae2f-b533fe037f88)
+
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/c3186800-6bfd-4e29-9275-4b09e7ddd64b)
+
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/09420fed-1b91-47f6-94b9-9baf61d5143f)
+
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/ba57362e-cf54-46a7-9425-dbd849be7bd7)
+
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/11dacf7b-76a7-481f-a379-e4212649627e)
+
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/15c1a1ab-23b3-455a-a706-19ef108b7242)
+
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/a006bfbc-491f-4064-961f-1545362ba02f)
+
+![image](https://github.com/Aman1496/Yog-Pose/assets/69244562/5727c430-a658-40ef-8d7e-5c564d45e28b)
