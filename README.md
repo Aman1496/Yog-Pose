@@ -1,5 +1,6 @@
 # Yog-Pose
 LY MAJOR PROJECT
+
 It can be difficult for beginners to perform yoga poses accurately without the
 assistance of a certified instructor, especially when utilizing online platforms.
 However, the growing popularity of online fitness programs has enabled individuals
